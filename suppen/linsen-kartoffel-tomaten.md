@@ -23,4 +23,4 @@ Andere nennen es auch einafach eine leckere Linsen Kartoffel Tomaten Suppe
 
 
 
-Der dritte Schritt kann auch in die Länge gezogen werden in dem zuerst
+Der dritte Schritt kann auch in die Länge gezogen werden in dem zuerst die Linsen angedünstet werden (2min 120grad), dann die Kartoffeln und Passierte Tomante dazu kommen (10min 120grad) am ende Salz Pfeffer nach Geschmackt dazu kommen (8min 100grad).
