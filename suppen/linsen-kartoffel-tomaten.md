@@ -9,7 +9,7 @@ Andere nennen es auch einafach eine leckere Linsen Kartoffel Tomaten Suppe
 ---
 
 - *1* Zwiebel
-- *1 EL* Vegane Butter (Alternativ Olivenöl)
+- *1 EL* Vegane Butter (Alternativ Sonnenblumenöl)
 - *0,5kg* Kartoffeln
 - *0,3kg* Rote Linsen
 - *500ml* Wasser
