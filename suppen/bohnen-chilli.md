@@ -16,8 +16,9 @@ Einfaches Bohnen Chili. Leicht Dosenlastig.
 - *2* Dosen Gehackte Tomaten
 - *500* ml Passierte Tomaten
 - *200* ml Wasser
-- Dazu Reis oder Nudeln
+- Dazu Reis, Nudeln oder Fladenbrot
 - Salz, Paprikapulver, Chilipulver
+- Zimt(stangen)
 ---
 
 | Zutaten | Aktion | Zeit | Temperatur | Mixer Stufe |
